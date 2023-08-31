@@ -1,4 +1,4 @@
-### 陳柏瑜(Kenny Chen) 👋
+### 陳柏瑜(Kenny Chen)
 
 🌱 Hi, I'm Kenny! I'm from Taiwan~
 🏫 I graduated from NYUST.
